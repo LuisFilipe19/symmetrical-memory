@@ -1,2 +1,0 @@
-# symmetrical-memory
-Oiiiiiiiii :DDDDDDDDDDDDDD
